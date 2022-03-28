@@ -1,1 +1,1 @@
-# Mukhammadimin-Resume
+# CV
